@@ -1,4 +1,3 @@
-# Wide Web world
 
 Hi Me,
 
